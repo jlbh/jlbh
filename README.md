@@ -1,1 +1,1 @@
-### I hope you have nice day <3
+### Have a nice day <3
